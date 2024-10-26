@@ -1,5 +1,5 @@
 # www.meoai.net
-2024年最新AI工具集合，全网最全AI工具集合，所有免费AI产品，5000＋AI工具导航 | 全球AI工具集合
+2024年最新AI工具集合，全网最全AI工具集合，所有免费AI产品，17000＋AI工具导航 | 全球AI工具集合
 
 MeoAI - Most Efficient and Omni AI Toolset；最高效全面的工具集合网站，收录了国内外5000多个不同类型的AI工具。
 
